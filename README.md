@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GeorgeAllen17
 - 👀 I’m interested in Anime, Cycling, and Traveling.
-- 🌱 I’m currently learning Japanese.
+- 🌱 I’m currently focusing on improving my lower body strenght.
 - 📫 How to reach me: huntmaxx68@gmail.com
     - TNT No. 09630847032
 <!---
